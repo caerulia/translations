@@ -20,8 +20,8 @@ Tkany niepokojem serc\
 W półmroku budzi mnie
 
 Fale rozbijają się u stóp\
-O skałę mej duszy .....\
-Choć miecz jest ostry znów, nocą pragnę uciec w dal\
+O skałę mej duszy, poruszonej już:\
+Choć miecz mój ostry znów, nocą pragnę uciec w dal\
 Bo czuć w nim głód śmiertelnych ran
 
 Teraz siedzę tu bez ciebie, sam\
