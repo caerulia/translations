@@ -24,9 +24,9 @@ O skałę mej duszy, poruszonej już:\
 Choć miecz mój ostry znów, nocą pragnę uciec w dal\
 Bo czuć w nim głód śmiertelnych ran
 
-Teraz siedzę tu bez ciebie, sam\
+Teraz siedzę tu, w oddali, sam\
 Pieśń mą smutną niesie cichy wiatr\
-Ocean weźmie takt, daleko niosąc ton\
+By odnalazła szlak do mych rodzinnych stron\
 Do domu, gdzie zapada zmrok
 
 I w noc głęboką sen\
